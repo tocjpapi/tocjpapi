@@ -8,4 +8,3 @@
 
 ৹  I place quality over quantity unless you want me to do otherwise.
 
-৹  Let's do summ together shall we?
